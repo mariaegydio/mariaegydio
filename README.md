@@ -37,7 +37,7 @@
 
 ## 📩 Entre em Contato  
 
-📧 **E-mail:** [mariaegydio.dev@outlook.com](mailto:mariaegydio.dev@outlook.com)  
+📧 **E-mail:** [mariaegydioss@gmail.com](mailto:mariaegydioss@gmail.com)  
 🔗 **LinkedIn:** [Maria Julia Egydio](https://www.linkedin.com/in/maria-julia-egydio-188ab9299/)  
 
 ---
